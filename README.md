@@ -1,8 +1,7 @@
 <div align="center">
 
-hi I'm gonna remake ts ok?... enjoy these trad goth images
+## hi I'm gonna remake ts ok?... enjoy these trad goth images
 
-## ↓
 
 <img width="640" height="854" alt="1000035690" src="https://github.com/user-attachments/assets/421814c4-66ac-49a4-a3e1-bb72dc6faa92" />
 
